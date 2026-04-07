@@ -64,4 +64,4 @@ Upload ke hosting gratis:
 
 ---
 
-**Dibuat dengan ❤️ untuk pendidikan**
+**Dibuat oleh Ahmad Sabryan**
